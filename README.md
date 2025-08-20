@@ -1,1 +1,1 @@
-# Mastermind Journey 🚀
+# Mastermind Journey
